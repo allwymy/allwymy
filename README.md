@@ -4,7 +4,7 @@ Welcome!
 I don't know.. it's not about me.
 
 ## My Projects.
-Sorry I'm lazy, I don't do projects, project is too big for me ¯\_(ツ)_/¯.
+Sorry I'm lazy, I don't do projects, project is too big for me ¯\\_(ツ)_/¯.
 
 ## Connect with Me.
 **don't**
